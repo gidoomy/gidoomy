@@ -10,4 +10,4 @@ Committed to delivering high-quality work and driving innovation as well as gain
 
 - 🚀 I Love to be an Active Player in projects and collabartive work. 
 
-- 📫 Let’s connectl; Feel free to reach out via my Linkedin Page :)
+- 📫 Let’s connect; Feel free to reach out via my Linkedin Page :)
