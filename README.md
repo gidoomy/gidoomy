@@ -1,13 +1,14 @@
 👋 Hi, I'm Adham From Cairo, Egypt!
 
-I am Energetic, motivated and Committed Informatics student at the Arab Academy for Science and Technology also currently undertaking a dual degree in the University of Northampton in the United Kingdom here at AASTMT. Also, I aim to to apply theoretical knowledge in a practical setting. An Eagerness to learn, contribute to a dynamic team, gain real-world experience, and hoping to develop more skills in areas such as Data Analysis/Data Science, Web and Mobile Development, Project Management, Flutter Development and Network Engineering;
-Committed to delivering high-quality work and driving innovation as well as gaining expertise in the field of Informatics, Computer Science and the broader depth of computing as a whole.
+I’m a recent Business Informatics from the AASTMT with a Dual-degree in the University of Northampton in the United Kingdom. Actively Seeking opportunities in the technical field and new career opportunities in Egypt or outside.
 
+During my time at University I was taught everything from career essentials to basic soft and hard business skills required for a Business Informatics Graduate; Data Analyst, UI/UX Designer, Full Stack Developer, Flutter Developer, etc. It also taught me how to be a effective communicator, a leader of a team and the effectiveness of teamwork and problem-solving. These years a university has sharpened me to become a flexible person and adaptable to change overtime.
 
-- 🔭 Finishing My Final Year at University
+I have a keen interest in the field by other means apply from a theoretical-setting towards a practical-setting; with had on experience and knowledge in Python, MySQL, Excel and Power BI.
+
+I’m ready to bring my knowledge, work ethic, and enthusiasm to a team where I can continuous learn, grow, and make a positive impact toward me.
+
 
 - 🌱 Always eagering to learning and exploring new opporunities and aiming to stay ahead of the game.
-
-- 🚀 I Love to be an Active Player in projects and collabartive work. 
 
 - 📫 Let’s connect; Feel free to reach out via my Linkedin Page :)
