@@ -11,4 +11,4 @@ I’m ready to bring my knowledge, work ethic, and enthusiasm to a team where I 
 
 - 🌱 Always eagering to learning and exploring new opporunities and aiming to stay ahead of the game.
 
-- 📫 Let’s connect; Feel free to reach out via my Linkedin Page :)
+- 📫 Let’s connect; feel free to reach out via my Linkedin Page :)
