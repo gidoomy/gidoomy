@@ -4,7 +4,7 @@ I’m a Graduate of BSc in Business Informatics from the AASTMT with a Dual-degr
 
 I have a keen interest in the digital transformation field by other means apply from a theoretical-setting towards a practical-setting; with hands-on experience and knowledge.
 
-Additonally, I am a McKinsey.org Forward Program '25 Alumnus and Recipient. A program that sharpened my leadership capabilities and business thinking alongside top talent across more than 130 countries. I also hold the distinction of Best Data Analyst Intern (Batch 22) from Uneeq Interns, awarded October 2025, reflecting my analytical grounding that underpins everything I do in marketing not only that I was awarded as one of a million prompters initiative from the Dubai Government in the UAE under the patronage of Dubai Future Foundation (DFF) and Dubai Center for Artificial Intelligence (DCAI).
+Additionally, I am a McKinsey.org Forward Program '25 Alumnus and Recipient. A program that sharpened my leadership capabilities and business thinking alongside top talent across more than 130 countries. I also hold the distinction of Best Data Analyst Intern (Batch 22) from Uneeq Interns, awarded October 2025, reflecting my analytical grounding that underpins everything I do in marketing not only that I was awarded as one of a million prompters initiative from the Dubai Government in the UAE under the patronage of Dubai Future Foundation (DFF) and Dubai Center for Artificial Intelligence (DCAI).
 
 I’m ready to bring my knowledge, work ethic, and enthusiasm, where I can continuous learn, grow, and make a positive impact toward me.
 
